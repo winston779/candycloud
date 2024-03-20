@@ -1,6 +1,6 @@
 # Candy Cloud官网地址
 
-最新地址：[coco2.cc](https://candy1.online/#/register?code=ZZ7PCkMh)
+最新地址：[coco2.cc](https://candy2.one/#/register?code=ZZ7PCkMh)
 
 ## Candy Cloud介绍
 
