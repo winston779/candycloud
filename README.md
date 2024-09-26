@@ -1,6 +1,6 @@
 # Candy Cloud官网地址
 
-最新地址：[candycandy2.shop](https://www.candycandy2.me/#/register?code=ZZ7PCkMh)
+最新地址：[candycandy2.shop](https://www.candycandy2.vip/#/register?code=ZZ7PCkMh)
 
 ## Candy Cloud介绍
 
