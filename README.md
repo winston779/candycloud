@@ -1,6 +1,6 @@
 # Candy Cloud官网地址
 
-最新地址：[candycandy2.shop](https://www.candycandy2.vip/#/register?code=ZZ7PCkMh)
+最新地址：[candycandy2.shop](https://abc.cathot133.top/#/register?code=ZZ7PCkMh)
 
 ## Candy Cloud介绍
 
@@ -12,11 +12,11 @@ Candy Cloud机场提供免费的小火箭账号，联系客服获取即可。
 
 ## Candy Cloud优惠码
 
-新人九折优惠码:candy1（仅月付套餐可用）
+新人九折优惠码:candy1（月付套餐 不限时套餐可用）
 
 季付八五折优惠码:coco1（仅季付可用）
 
-年付七五折优惠码:coco3（仅半年付年付可用）
+年付七五折优惠码:coco3（仅半年付年付可用)
 
 新人九折优惠码仅可用一次
 
